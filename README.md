@@ -4,3 +4,4 @@
 
 
 
+**Dominga Bambach, Manuela Eyzaguirre, Josefa Lozano, Agustina Manzano, Roberta Parodi, Laura Prat,**. 
